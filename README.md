@@ -4,7 +4,6 @@ Building or renovating a home can be complex, and when expectations are not met,
 
 Understanding how **builder dispute resolution** works in NSW can help both homeowners and builders resolve issues efficiently and avoid unnecessary escalation.
 
----
 
 ## Common Building Disputes in NSW
 
@@ -18,7 +17,6 @@ Some of the most frequent causes of **building disputes NSW** include:
 
 When these issues are not addressed early, they often lead to formal complaints and legal conflict.
 
----
 
 ## The Role of Builder Dispute Resolution
 
@@ -26,7 +24,6 @@ When these issues are not addressed early, they often lead to formal complaints 
 
 This approach can reduce stress, save costs, and protect professional relationships throughout the construction process.
 
----
 
 ## Construction Dispute Mediation in NSW
 
@@ -40,7 +37,6 @@ Benefits of mediation include:
 
 For many builder and homeowner disputes, mediation provides a balanced and practical resolution.
 
----
 
 ## Building Complaint Resolution: Acting Early Matters
 
@@ -53,13 +49,10 @@ Effective **building complaint resolution** starts with early action. Both homeo
 
 Early intervention often prevents disputes from escalating and becoming more difficult to resolve.
 
----
 
 ## Conclusion
 
 Building disputes can be stressful, but with the right guidance and a clear resolution strategy, they can be managed effectively. Whether you are dealing with defects, delays, or contractual disagreements, professional support in builder dispute resolution and construction dispute mediation can help achieve fair outcomes.
-
----
 
 **Builders Dispute Resolution Network (BDRN)**  
 
